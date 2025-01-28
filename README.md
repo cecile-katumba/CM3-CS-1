@@ -1,1 +1,5 @@
-# CM3-CS-1
+- I love to learn anything that's tought to me slow
+- For now I working on becoming at better me
+- I love baking, hanging out with my friends
+- I'm half Congolese and Liberian
+- Fun fact about me I lived in 5 now 6 different contry
